@@ -1,4 +1,4 @@
-#  
+#  custom spin a soccer card Script offers the most advanced spin a soccer card Script, with god mode and auto-sell. Perfect for dominating any match.
 
 
 
